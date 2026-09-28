@@ -1,0 +1,2 @@
+# premium-alidade-sight-001-alidade-sight-rule-degree-sc
+Tired of scattered notes, loose sketches, and forgotten angle calculations that derail your precision craft projects? The Alidade Sight Rule &amp; Degree Scale Craft Hub consolidates everything you need into one organized, calculation-ready Notion workspace.  This is the first Notion template specifically designed for craftspeople, surveyors, navigator
